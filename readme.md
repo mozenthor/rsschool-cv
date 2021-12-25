@@ -1,1 +1,1 @@
-https://mozenthor.github.io/rsschool-cv/cv
+https://mozenthor.github.io/rsschool-cv/
