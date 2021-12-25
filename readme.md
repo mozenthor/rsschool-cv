@@ -1,0 +1,1 @@
+https://mozenthor.github.io/rsschool-cv/cv
